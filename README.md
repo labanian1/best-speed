@@ -4,7 +4,7 @@
 
 https://bspeed1.click/
 
-**وب سایت اسپید وی پی ان:**
+**وب سایت اصلی اسپید وی پی ان:**
 
 https://best-speed.com
 
