@@ -2,7 +2,7 @@
 
 **آدرس بدون فیلتر:**
 
-https://bspeed1.fun/
+https://bspeed1.click/
 
 **وب سایت اسپید وی پی ان:**
 
