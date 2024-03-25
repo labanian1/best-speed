@@ -1,9 +1,5 @@
 # اسپید وی پی ان – Speed VPN
 
-**آدرس بدون فیلتر:**
-
-https://bspeed1.click/
-
 **وب سایت اصلی اسپید وی پی ان:**
 
 https://best-speed.com
