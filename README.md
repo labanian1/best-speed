@@ -2,7 +2,7 @@
 
 **پشتیبانی آنلاین خرید:**
 
-<h3> [👈 اینجا کلیک کنید 👉](https://1556.3cx.cloud/callus/#bestspeedvpn) </h3>
+<h3> <a href="https://1556.3cx.cloud/callus/#bestspeedvpn" rel="nofollow noopener" target="_blank"><span aria-label="backhand index pointing left" class="emoji">👈</span> اینجا کلیک کنید <span aria-label="backhand index pointing right" class="emoji">👉</span></a> </h3>
 
 **وب سایت اصلی اسپید وی پی ان:**
 
