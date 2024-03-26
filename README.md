@@ -13,7 +13,7 @@ https://best-speed.com
 
 https://t.me/best_speedvpn
 
-[اسپید وی پی ان](https://i.postimg.cc/tJ05nLfS/last-e1670971981984.jpg)
+[![last-e1670971981984.jpg](https://i.postimg.cc/tJ05nLfS/last-e1670971981984.jpg)](https://postimg.cc/YG3gJytY)
 
 برخی از مزایایی که خرید اشتراک بست اسپید وی پی ان Speed VPN را نسبت به دیگر رقبا متمایز میکند. اسپید وی پی ان در ایران سازگار با همه اوپراتورها
 
