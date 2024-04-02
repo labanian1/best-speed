@@ -5,7 +5,7 @@
 
 <a href="https://t.me/best_speedvpn" align="center">
   <img height="200" src="https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg">
-</p>
+</a>
 
 
 **وب سایت اصلی اسپید وی پی ان:**
