@@ -16,7 +16,7 @@
 
 **چت آنلاین خرید و پشتیبانی:**
 
-<p align="center" dir="auto">[<span class="emoji">👈</span> اینجا کلیک کنید <span class="emoji">👉</span> ](https://1556.3cx.cloud/callus/#bestspeedvpn)</p>
+[<span class="emoji">👈</span> اینجا کلیک کنید <span class="emoji">👉</span> ](https://1556.3cx.cloud/callus/#bestspeedvpn)
 
 [![last-e1670971981984.jpg](https://i.postimg.cc/tJ05nLfS/last-e1670971981984.jpg)](https://postimg.cc/YG3gJytY)
 
