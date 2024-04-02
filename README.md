@@ -4,7 +4,7 @@
 **کانال تلگرام برای خرید:**
 
 <p align="center" dir="auto">
-  [<span class="emoji">👈</span> خرید از تلگرام <span class="emoji">👉</span> ](https://t.me/best_speedvpn)
+  <a href="https://t.me/best_speedvpn"><span class="emoji">👈</span> خرید از تلگرام <span class="emoji">👉</span> </a>
 </p>
 
 
