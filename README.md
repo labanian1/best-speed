@@ -3,7 +3,9 @@
 
 **کانال تلگرام برای خرید:**
 
-<center>[![خرید از تلگرام](https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg)](https://t.me/best_speedvpn)</center>
+<a href="https://t.me/best_speedvpn" align="center">
+  <img height="200" src="https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg">
+</p>
 
 
 **وب سایت اصلی اسپید وی پی ان:**
