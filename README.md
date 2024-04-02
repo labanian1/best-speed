@@ -4,7 +4,7 @@
 **کانال تلگرام برای خرید:**
 
 <a href="https://t.me/best_speedvpn" align="center">
-  <img height="200" src="https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg">
+  <img height="200" src="https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg" align="center">
 </a>
 
 
