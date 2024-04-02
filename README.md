@@ -1,7 +1,7 @@
 # اسپید وی پی ان – Speed VPN
 
 
-**کانال تلگرام برای خرید:**
+**کانال تلگرام اسپید وی پی ان:**
 
 <p align="center" dir="auto">
   <a href="https://t.me/best_speedvpn"><span class="emoji">👈</span> خرید از تلگرام <span class="emoji">👉</span> </a>
