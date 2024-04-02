@@ -1,17 +1,18 @@
 # اسپید وی پی ان – Speed VPN
 
-**چت آنلاین خرید و پشتیبانی:**
 
-[<span class="emoji">👈</span> اینجا کلیک کنید <span class="emoji">👉</span> ](https://1556.3cx.cloud/callus/#bestspeedvpn)
+**کانال تلگرام برای خرید:**
+
+[![خرید از تلگرام](https://i.postimg.cc/4x0Yz2tF/Telegram-6-1.jpg)](https://t.me/best_speedvpn)
+
 
 **وب سایت اصلی اسپید وی پی ان:**
 
 https://best-speed.com
 
+**چت آنلاین خرید و پشتیبانی:**
 
-**کانال تلگرام برای خرید:**
-
-https://t.me/best_speedvpn
+[<span class="emoji">👈</span> اینجا کلیک کنید <span class="emoji">👉</span> ](https://1556.3cx.cloud/callus/#bestspeedvpn)
 
 [![last-e1670971981984.jpg](https://i.postimg.cc/tJ05nLfS/last-e1670971981984.jpg)](https://postimg.cc/YG3gJytY)
 
